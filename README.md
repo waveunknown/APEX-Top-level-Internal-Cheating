@@ -1,4 +1,4 @@
-# Bing APEX MAX - 顶级内部辅助官网展示页
+# Bing Apex Pro - 顶级内部辅助
 
 🌐 **官网**: [https://apex.goudankw.store/](https://apex.goudankw.store/)
 
