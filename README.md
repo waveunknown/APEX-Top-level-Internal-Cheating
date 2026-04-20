@@ -1,4 +1,4 @@
-# Bing Apex Pro - 顶级内部辅助
+# Bing Apex Pro cheat - 顶级内部辅助
 
 🌐 **官网**: [https://apex.goudankw.store/](https://apex.goudankw.store/)
 
